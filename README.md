@@ -12,8 +12,4 @@ chat, bully me into finishing this please ☹️/hj (ongoing !)
 <p align="center">
  ^ quote of wholsomeness / shame (/hj) ^
 
-
-<p align="center">
-<img width="551" height="1001" alt="image" src="https://file.garden/aG2KGrGWWTR0az6h/aztralweb" />
-<p align="center">
-^ recent strawpage art for @SweetDr3ams
+recent strawpage art is @SweetDr3ams
