@@ -1,13 +1,8 @@
-<p align="center">
-★・⸝⸝ " 'Cause I lost my mind in late september " /lyr
-</p>
-<p align="center">
 wip
-</p>
+----------------------------
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lora&weight=600&size=24&duration=3030&pause=1000&color=F72F6C&center=true&width=435&lines=I+wanted+things+to+be+beautiful.;Things+to+be+beautiful.)](https://git.io/typing-svg)
 
-<p align="center">
-chat, bully me into finishing this please ☹️/hj (ongoing !)
-<p align="center">
-<img width="551" height="101" alt="image" src="https://github.com/user-attachments/assets/869b66c2-103a-4aa8-8557-befdc273a760" />
-<p align="center">
- ^ quote of wholsomeness / shame (/hj) ^
+<img src=PIC LINK HERE"  align="left" width="40%"> <p align="center">  ${\textsf{\color{#a81e53}get a grip.}}$ <br> <img src="DIVIDER PIC LINK HERE" height="40" width="240"/>
+> [!IMPORTANT]
+>  [17] y/o  .  multifandom  .
+
