@@ -5,4 +5,4 @@ wip
 <img src=PIC LINK HERE"  align="left" width="40%"> <p align="center">  ${\textsf{\color{#a81e53}get a grip.}}$ <br> <img src="DIVIDER PIC LINK HERE" height="40" width="240"/>
 > [!IMPORTANT]
 >  [17] y/o  .  multifandom  .
-
+> PLEASE NOTIFY ME IF SOME1 IS PROBLEMATIC THAT I FOLLOW/ FOLLOWS ME !!
