@@ -4,7 +4,7 @@ wip
 ----------------------------
 <p align="center">basic intro for now 
 
-<p align="center">hello I go by web . xe/them . I follow the basic dni criteria and i block freely
+<p align="center">hello I go by web . xe/them . basic dni criteria and i block freely
 
 <p align="center">I'm off-tab most of the time . c+h is enouraged unless with "dni" in my name ^_^
 
