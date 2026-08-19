@@ -7,6 +7,7 @@ wip
 <p align="center">hello I go by web . xe/them . basic dni criteria and i block freely
 
 <p align="center">I'm off-tab most of the time . c+h is __heavily encouraged__ unless with "dni" in my name ^_^
+<p align="center"> I gift pt skins when close OooOOOooooo . dnc if i didnt ask, ty
 
 
 > [!IMPORTANT]
