@@ -15,7 +15,7 @@
 
    [main rentry](https://rentry.co/astralweb) ⟡    [strawpage](https://astralweb.straw.page/) ⟡    [atabook](https://astralweb.atabook.org/) ⟡    [guns.lol](https://guns.lol/astralweb)   
 
-| $${\color{#a88288}About \space \space me}$$ | 
+| $${\color{#a88288}About \space \space me}$$   <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/pixels/pix3" width="25" height="20" alt="Description" align="justify"> | 
 | :---         |
 | <p align="left"> $${\color{#de2849}web \space \space \space \space}$$ $${\color{#ba9199}—   \space \space \space \space}$$  $${\color{#701b1e}zee \space \space \space \space}$$  $${\color{#ba9199}✦\space \space \space \space}$$  $${\color{#ff2146} riyu \space \space \space \space \space}$$ / $${\color{#ba9199} \space \space 17  \space  \space y/o\space}$$  |
 | <p align="left"> xe‎ ‎ ༝‎‎ ‎‎ t<ins>he</ins>y‎ ‎ ‎ ༝‎‎ ‎‎ ‎<a href="https://pronouns.cc/@astral.web/2">++</a> 　　<img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/asexual" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/genderfluid" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/aroflux" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/aroacespec" width="35" height="35" align="justify"> <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/flags/nebularomantic" width="35" height="35" align=""> | 
@@ -23,7 +23,7 @@
 ----------------------------
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.wehavesome.misc" width="220" height="65" alt="Description" align="left">
 
-$${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \space}$$
+$${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \space}$$ <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/pixels/pix1" width="25" height="20" alt="Description" align="justify">
 ———————————————————
 ——————————————————————————————————
 
