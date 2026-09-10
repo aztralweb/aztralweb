@@ -1,5 +1,6 @@
 wip a roonies
 ----------------------------
+----------------------------
 
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyo.%20main" width="350" height="200" alt="Description" look=left> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&duration=5015&pause=1050&color=B0181899&background=37030300&center=true&width=435&lines=+%E2%80%9D++I+only+have+one+vital+instrument.++%E2%80%9D;+%E2%80%9D++And+I+will+never+stain+my+scissors++%E2%80%9D;+%E2%80%9D++with+blood+again.+++%E2%80%9D" alt="Typing SVG" /></a> 
 
@@ -8,7 +9,7 @@ wip a roonies
 
 
 ----------------------------
-
+----------------------------
 
 
 <p align="center">basic intro for now 
