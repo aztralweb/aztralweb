@@ -42,7 +42,7 @@ $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \
 <details>
  <summary><b>dni</b></summary>
   
-   people who's beliefs align witht the basic DNI criteria, ANY disorder fakers / romanticizers, ex friends, toxic / problematic people as well as their supporters, endos/other origin "systems" && supporters ( i don't rlly bother  ya'll as long as you don't fester me )
+   people who's beliefs align within the basic DNI criteria, ANY disorder fakers / romanticizers, ex friends, toxic / problematic people as well as their supporters, endos/other origin "systems" && supporters ( i don't rlly bother  ya'll as long as you don't fester me )
 </details>
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.looks.misc" width="220" height="65" alt="Description" align="right">
 
