@@ -22,7 +22,7 @@ wip a roonies
 
 $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \space}$$
 ——————————
-———————————————
+———————————————————
 <details>
   <summary><b>byi</b></summary>
 
