@@ -12,7 +12,9 @@ wip a roonies
 ----------------------------
 
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.full.misc" width="300" height="545" alt="Description" align="right">
-<img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.stare.misc" width="150" height="45" alt="Description" class="center-block">
+<img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.stare.misc" width="150" height="45" alt="Description" align="left"> ‎ ‎
+
+   [main rentry](https://rentry.co/astralweb) ⟡    [strawpage](https://astralweb.straw.page/) ⟡    [atabook](https://astralweb.atabook.org/) ⟡    [guns.lol](https://guns.lol/astralweb)   
 
 | $${\color{#a88288}About \space \space me}$$ |
 | :---         |
