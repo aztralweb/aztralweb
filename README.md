@@ -20,7 +20,7 @@ wip a roonies
 ----------------------------
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.wehavesome.misc" width="220" height="65" alt="Description" align="left">
 
-$${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \space by\space \space Taku\space \space Iwasaki,\space \space Namichie}$$
+$${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \space}$$
 ————————————————
 ————————————————————————
 <details>
@@ -42,4 +42,4 @@ $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \
 </details>
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.looks.misc" width="220" height="65" alt="Description" align="right">
 
-$${\color{#de2849}.playing    ݁˖\space rivals\space \space and\space \space equals\space \space by\space \space Mori\space \space \space Calliope}$$
+$${\color{#de2849}.playing    ݁˖\space rivals\space \space and\space \space equals\space \space}$$
