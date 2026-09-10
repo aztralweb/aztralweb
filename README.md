@@ -48,6 +48,10 @@ $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \
 $${\color{#de2849}.playing    ݁˖\space rivals\space \space and\space \space equals\space \space by \space \space Mori Calliope}$$
 ———————————————————————
 —————————————————————————————————————————
+|<p align="left"> honorable mentions :|
+|:---:|
+|charlie . chomp . devy . jester . jun hie . kiyoshi|
+|kris . lomi . oblige . soup . sugar . quasar| 
 <p align="right">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315oxri5hk2ic5s5soszj5caqcwm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=380a0a&interchange=false&profanity=false&hide_remaster=false&bar_color=ac3011&bar_color_cover=false">
