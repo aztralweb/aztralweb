@@ -32,19 +32,19 @@ $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \
 <details>
   <summary><b>byi</b></summary>
 
-  blahblahblah wip
+  do not flirt with me romantically, I'm married. assume everything ii say is purely platonic ! i sometimes use/need tonetag, svery uncomfy with sexual jokes & derogatory words/innuendos, i'm not religious, i'm neurodivergent ( please bare with me... ), i yap when close, and i block freely so please respect my boundaries !!
 </details>
 
 <details>
   <summary><b>thin ice</b></summary>
-  
+  VERY religious people / political, people who yume/selfships with my c'links / alters( i am not your partner/s. ), people who dislike my interest ( i'm okay if you would just keep a distance insted of causing a scene T^T )
   blahblahblah wips
 </details>
 
 <details>
  <summary><b>dni</b></summary>
   
-  blahblahblah wipss
+   people who's beliefs align witht the basic DNI criteria, ANY disorder fakers / romanticizers, ex friends, toxic / problematic people as well as their supporters, endos/other origin "systems" && supporters ( i don't rlly bother  ya'll as long as you don't fester me )
 </details>
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.looks.misc" width="220" height="65" alt="Description" align="right">
 
