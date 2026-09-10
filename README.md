@@ -21,8 +21,8 @@ wip a roonies
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.wehavesome.misc" width="220" height="65" alt="Description" align="left">
 
 $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \space}$$
-——————————————————
-———————————————————————————
+——————————————————————————
+———————————————————————————————————————————
 
 
 <details>
