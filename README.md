@@ -31,7 +31,7 @@ $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \
 <details>
   <summary><b>byi</b></summary>
 
-  do not flirt with me romantically, I'm married. assume everything ii say is purely platonic ! i sometimes use/need tonetag, svery uncomfy with sexual jokes & derogatory words/innuendos, i'm not religious, i'm neurodivergent ( please bare with me... ), i yap when close, and i block freely so please respect my boundaries !!
+  do not flirt with me romantically, I'm married. assume everything i say is purely platonic ! i sometimes use/need tonetag, svery uncomfy with sexual jokes & derogatory words/innuendos, i'm not religious, i'm neurodivergent ( please bare with me... ), i yap when close, and i block freely so please respect my boundaries !!
 </details>
 
 <details>
