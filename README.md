@@ -14,7 +14,7 @@ wip a roonies
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.full.misc" width="300" height="545" alt="Description" align="right">
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.stare.misc" width="150" height="45" alt="Description" class="center-block">
 
-<p align="left">. $${\color{#de2849}web \space \space \space \space}$$ $${\color{#ba9199}𓏼 \space \space \space \space}$$  $${\color{#701b1e}zee \space \space \space \space}$$  $${\color{#ba9199}✦\space \space \space \space}$$  $${\color{#ff2146} riyu \space}$$
+<p align="left">. $${\color{#de2849}web \space \space \space \space}$$ $${\color{#ba9199}—   \space \space \space \space}$$  $${\color{#701b1e}zee \space \space \space \space}$$  $${\color{#ba9199}✦\space \space \space \space}$$  $${\color{#ff2146} riyu \space \space \space \space \space}$$ || $${\color{#ba9199} \space \space 17  \space  \space y/o\space}$$
 <p align="left"> xe‎ ‎ ༝‎‎ ‎‎ t<ins>he</ins>y‎ ‎ ‎ ༝‎‎ ‎‎ ‎<a href="https://pronouns.cc/@astral.web/2">++</a>
   
 ----------------------------
@@ -31,24 +31,15 @@ $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \
 
 <details>
   <summary><b>thin ice</b></summary>
+  
   blahblahblah wips
 </details>
-<img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.looks.misc" width="220" height="65" alt="Description" align="right">
+
 <details>
-  <summary><b>dni</b></summary>
+ <summary><b>dni</b></summary>
+  
   blahblahblah wipss
+</details>
+<img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.looks.misc" width="220" height="65" alt="Description" align="right">
 
 $${\color{#de2849}.playing    ݁˖\space rivals\space \space and\space \space equals\space \space by\space \space Mori\space \space \space Calliope}$$
-
-
-<p align="center">basic intro for now 
-
-<p align="center">hello I go by web . xe/them . basic dni criteria and i block freely
-
-<p align="center">I'm off-tab most of the time . c+h is __heavily encouraged__ unless with "dni" in my name ^_^
-<p align="center"> I gift pt skins when close OooOOOooooo . dnc if i didnt ask, ty
-
-
-> [!IMPORTANT]
->  [17] y/o  .  multifandom  .
-> PLEASE NOTIFY ME IF SOME1 IS PROBLEMATIC THAT I FOLLOW/ FOLLOWS ME !!
