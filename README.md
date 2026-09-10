@@ -11,6 +11,12 @@ wip a roonies
 ----------------------------
 ----------------------------
 
+<img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.stare.misc" width="150" height="45" alt="Description" class="center-block">
+
+<p align="left">. $${\color{#de2849}web \space \space \space \space}$$ $${\color{#ba9199}𓏼 \space \space \space \space}$$  $${\color{#701b1e}zee \space \space \space \space}$$  $${\color{#ba9199}✦\space \space \space \space}$$  $${\color{#ff2146} riyu \space}$$
+<p align="left"> xe‎ ‎ ༝‎‎ ‎‎ t<ins>he</ins>y‎ ‎ ‎ ༝‎‎ ‎‎ ‎<a href="https://pronouns.cc/@astral.web/2">++</a>
+  
+$${\color{#de2849}.playing    ݁˖\space rivals\space \space and\space \space equals\space \space by\space \space Mori\space \space \space Calliope}$$
 
 <p align="center">basic intro for now 
 
