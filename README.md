@@ -37,7 +37,6 @@ $${\color{#5c1823}.playing    ݁˖\space scissor\space \space redemption\space \
 <details>
   <summary><b>thin ice</b></summary>
   VERY religious people / political, people who yume/selfships with my c'links / alters( i am not your partner/s. ), people who dislike my interest ( i'm okay if you would just keep a distance insted of causing a scene T^T )
-  blahblahblah wips
 </details>
 
 <details>
