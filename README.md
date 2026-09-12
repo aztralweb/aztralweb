@@ -3,7 +3,7 @@
 
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.%20main" width="350" height="200" alt="this is me" alighn="left"> <a href="https://git.io/typing-svg"> <img src="https://readme-typing-svg.demolab.com?font=Cinzel&duration=5015&pause=1050&color=B0181899&background=37030300&center=true&width=435&lines=+%E2%80%9D++I+only+have+one+vital+instrument.++%E2%80%9D;+%E2%80%9D++And+I+will+never+stain+my+scissors++%E2%80%9D;+%E2%80%9D++with+blood+again.+++%E2%80%9D" alt="Typing SVG" /></a> 
 
-<img alt="Static Badge" src="https://img.shields.io/badge/beasts%20%E2%80%94%20%20%F0%9D%86%BB-19%2C173-8f2535"> <img alt="Static Badge" src="https://img.shields.io/badge/the%20reaper%20ᛝ-3d1f24"> 
+<img alt="Static Badge" src="https://img.shields.io/badge/beasts%20%E2%80%94%20%20%F0%9D%86%BB-19%2C173-8f2535"> <img alt="Static Badge" src="https://img.shields.io/badge/the%20reaper%20ᛝ-3d1f24"> ![](https://komarev.com/ghpvc/?username=your-github-username&color=ad1f2d)
 
 <sub> best viewed in pc </sub>　𝆹𝅥 
 
