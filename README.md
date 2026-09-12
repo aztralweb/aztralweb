@@ -50,7 +50,7 @@ $${\color{#de2849}.playing    ݁˖\space rivals\space \space and\space \space eq
 —————————————————————————————————————————
 |<p align="left"> honorable mentions :|
 |:---:|
-|charlie . chomp . devy . jester . jun hie . kiyoshi|
+|boogah . charlie . chomp . devy . jester . jun hie . kiyoshi|
 |kris . lomi . oblige . soup . sugar . quasar| 
 <p align="right">
   <a href="https://github.com/kittinan/spotify-github-profile">
