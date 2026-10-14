@@ -13,7 +13,7 @@
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.full.misc" width="300" height="545" alt="Description" align="right">
 <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/riyu.stare.misc" width="150" height="45" alt="Description" align="left"> ‎ ‎
 
-   [main rentry](https://rentry.co/astralweb) ⟡    [strawpage](https://astralweb.straw.page/) ⟡    [atabook](https://astralweb.atabook.org/) ⟡    [guns.lol](https://guns.lol/astralweb)   
+   [main rentry}](https://rentry.co/astralweb) $${\color{#de2849}⟡}$$    [strawpage](https://astralweb.straw.page/) $${\color{#de2849}⟡}$$    [atabook](https://astralweb.atabook.org/) $${\color{#de2849}⟡}$$    [guns.lol](https://guns.lol/astralweb)   
 
 | $${\color{#a88288}About \space \space me}$$   <img src="https://file.garden/aG2KGrGWWTR0az6h/github%20miscs/pixels/pix3" width="25" height="20" alt="Description" align="justify"> | 
 | :---         |
