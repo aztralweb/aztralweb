@@ -5,7 +5,7 @@
 
 <img alt="Static Badge" src="https://img.shields.io/badge/beasts%20%E2%80%94%20%20%F0%9D%86%BB-19%2C173-8f2535"> <img alt="Static Badge" src="https://img.shields.io/badge/the%20reaper%20ᛝ-3d1f24"> ![](https://komarev.com/ghpvc/?username=aztralweb&color=ad1f2d&label=cleaners)
 
-<sub> best viewed in pc </sub>　𝆹𝅥 
+<sub> best viewed in pc xoxo </sub>　𝆹𝅥 
 
 ----------------------------
 ----------------------------
